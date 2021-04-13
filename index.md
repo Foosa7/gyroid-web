@@ -1,8 +1,7 @@
-## NIGGER
+## OOSOSOS  
 
-N
-I
-G
-G
-E
-R
+* O
+* S
+* S
+* S
+* T
